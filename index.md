@@ -10,3 +10,7 @@ Zur Hochzeit mit Angelina Jolie schenkte er ihr die Schreibmaschine von Ernest H
 * bezeichnet sich heute zu 80 % als Agnostiker und zu 20 % als Atheist.
 * als Lieblingsschauspieler benannte er Robert De Niro.
 * wurde in den Jahren 1995 und 2000 vom US-amerikanischen People Magazin zum Sexiest Man Alive gewählt.
+
+## Zitate von Brad Pitt lt. Internet:
+
+> Ich will meine Zeit nicht länger verschwenden, sondern sie mit den Leuten, die ich liebe, verbringen.
