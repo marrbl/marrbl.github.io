@@ -14,3 +14,7 @@ Zur Hochzeit mit Angelina Jolie schenkte er ihr die Schreibmaschine von Ernest H
 ## Zitate von Brad Pitt lt. Internet:
 
 > Ich will meine Zeit nicht länger verschwenden, sondern sie mit den Leuten, die ich liebe, verbringen.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/4c/Brad_Pitt_2019_by_Glenn_Francis.jpg/800px-Brad_Pitt_2019_by_Glenn_Francis.jpg"/>
+
+![Bild von Brad Pitt aus Wikipedia](https://images.app.goo.gl/cRRjTojp2rGTtdDm6)
