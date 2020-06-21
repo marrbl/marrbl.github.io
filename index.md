@@ -1,1 +1,5 @@
 # This is a site about Brad Pitt
+William Bradley „Brad“ Pitt (Geb. 18. Dezember 1963 in Shawnee, Oklahoma) ist ein US-amerikanischer Schauspieler und Filmproduzent sowie zweifacher Oscarpreisträger. Er ist zudem Mitbegründer und alleiniger Eigentümer der Filmproduktionsfirma Plan B Entertainment.
+Pitt hat großes Interesse an Architektur. Er lernte während des Baus seines Hauses Mitglieder von Graft kennen, die er dann mit dem Entwurf für sein Arbeitsstudio und für ein Ökohotel beauftragte. Im Jahr 2000 veröffentlichte er gemeinsam mit dem US-amerikanischen Architekten Thomas A. Heinz and Randell Makinson ein Buch über das Blacker House in Pasadena. Über seine Stiftung Make It Right beauftragte er namhafte Architekturbüros mit Entwürfen für Doppelhäuser zum Wiederaufbau nach den Zerstörungen durch Hurrikan Katrina in New Orleans. Er legte dabei besonderen Wert auf Nachhaltigkeit, Klimaneutralität und Erschwinglichkeit.
+Zur Hochzeit mit Angelina Jolie schenkte er ihr die Schreibmaschine von Ernest Hemingway im Wert von 250.000 Dollar.
+(Quelle: wikipedia.de)
